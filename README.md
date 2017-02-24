@@ -1,3 +1,3 @@
 # Black-Gold
 
-see https://justpaste.it/SleepIsForTheWeak
+see https://justpaste.it/BlackGold
